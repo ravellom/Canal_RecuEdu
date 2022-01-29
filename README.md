@@ -1,6 +1,6 @@
 # Canal de YouTube: RecuEdu
 
-Información usada en el canal de Youtube RecuEdu
+Información usada en el canal de Youtube RecuEdu: http://www.youtube.com/channel/UCn0v3DhIceFUACWxR9fU30Q
 
 ## APOYO AL CANAL
 ### Donativos: 
