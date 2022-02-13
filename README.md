@@ -4,7 +4,7 @@ Información usada en el canal de Youtube RecuEdu: http://www.youtube.com/channe
 
 ## APOYO AL CANAL
 ### Donativos: 
-Tarjeta BANDEC (Cuba): 2990 0290 0909 0921
+Tarjeta BANDEC (Cuba): 9224 0699 9294 0912
 
-Tarjeta SMDSS (Ecuador): 21451390 0909 0921
+
 
