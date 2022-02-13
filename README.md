@@ -7,4 +7,5 @@ Información usada en el canal de Youtube RecuEdu: http://www.youtube.com/channe
 Tarjeta BANDEC (Cuba. pesos cubanos): 9224 0699 9294 0912
 
 
+Muchas gracias por su apoyo!!!
 
