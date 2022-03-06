@@ -4,6 +4,7 @@ Información usada en el canal de Youtube RecuEdu: http://www.youtube.com/channe
 
 ## APOYO AL CANAL
 ### Donativos: 
+Tarjeta BANDEC (Cuba. USD): 9235 0699 9160 3740 
 Tarjeta BANDEC (Cuba. pesos cubanos): 9224 0699 9294 0912
 
 
